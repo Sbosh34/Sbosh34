@@ -3,7 +3,7 @@
 - 🌱 I'm an intermediate in Java, Python, R and Self taught in The webSpace(HTML , CSS , JavaScript) but i'm looking to further learn more about what Python can do.
 - 📫 How to reach me ...
 Instagram - mans_not_sikhosatia2.0
-Linkedin  - ![Click Here](linkedin.com/in/sibonelosikhosatia2005)
+Linkedin  - (linkedin.com/in/sibonelosikhosatia2005)
 - 😄 Pronouns: ...Him/Himothy/
 - ⚡ Fun fact: I'm a bit paranoid...like what if this gets a bit too hard? I'm just gonna get Harder
 
