@@ -2,8 +2,8 @@
 - 👀 My current interest-peaker is Data. There's so many things that we can get from data and I'm here to learn all of it. From predicting using past data to analysing what may have happened in the past to secure better outcomes for the future. Data is what makes the world so change-able. If we can learn from it. We can build anything to benefit us.
 - 🌱 I'm an intermediate in Java, Python, R and Self taught in The webSpace(HTML , CSS , JavaScript) but i'm looking to further learn more about what Python can do.
 - 📫 How to reach me ...
-Instagram - mans_not_sikhosatia2.0
-Linkedin  - [www.linkedin.com/in/sibonelosikhosatia2005](https://www.linkedin.com/in/sibonelosikhosatia2005/)
+- Instagram - mans_not_sikhosatia2.0
+- Linkedin  - [Click Here](https://www.linkedin.com/in/sibonelosikhosatia2005/)
 - 😄 Pronouns: ...Him/Himothy/
 - ⚡ Fun fact: I'm a bit paranoid...like what if this gets a bit too hard? I'm just gonna get Harder
 
